@@ -1,4 +1,4 @@
-# Your Name
+B.JYOTHI SWAROOP 
 Software Engineer
 
 Passionate developer...
@@ -9,4 +9,5 @@ Passionate developer...
 
 
 
-## 🌐 Connect
+## 🌐 CONNECT WITH ME INSTA 
+https://www.instagram.com/swaroop.dev_
